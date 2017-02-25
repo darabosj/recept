@@ -1,0 +1,1 @@
+mennyiseg karbantartas
